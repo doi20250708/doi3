@@ -10,4 +10,4 @@
 
 本平台聚焦于欧美重口风格影片，尤其适合偏好黑粗、强烈视觉冲击体验的观众。所有内容均为高清资源，播放无广告，界面简洁明了。每日更新大量影片资源，覆盖剧情、素人、真实拍摄等多个类别，保证每次访问都有新体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi3 ）</span>
